@@ -1,4 +1,4 @@
-# 
+# Élite ftx trading bot flux de travail pour Mac OS | Gratuit ftx trading bot flux de travail pour PC Windows. Avec arbitrage triangulaire et signature des transactions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
